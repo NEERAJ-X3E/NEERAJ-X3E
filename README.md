@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on mind 
 - 📫 How to reach me, you dont have too
 - ⚡ Fun fact: 7 thala for reason
-
+life respond to effort 
 <!---
 NEERAJ-X3E/NEERAJ-X3E is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
